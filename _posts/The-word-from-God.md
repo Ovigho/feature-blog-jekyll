@@ -1,0 +1,31 @@
+Humility is not worrying about what other people think of you. It is
+doing for others without receiving credit. It is desiring favor from
+GOD and not men. It is growing in favor with GOD and pleasing
+GOD.
+It is quiet and unassuming.
+It is growing in GOD.
+It is being “CHRIST-like.” Humility is most beautiful to GOD. A
+humble, GOD-fearing person shines in GOD’s Eyes.
+Humility is wanting to please GOD and walk in His Path. To be lowly
+and not think well of yourself and to not think yourself better than
+others, to consider yourself below others, and to not judge those
+around you. I am the only ONE to judge. It does not mean you are
+to be abased. It means you are to respect others’ feelings even if
+they stumble and not to belittle them in your heart, to have
+compassion for them because you too are not beyond sinning
+before a Holy GOD.
+This is what happens when someone is humble. They create a
+wonderful testimony. They shine in MY Kingdom, in MY Eyes. They
+receive the Ear of GOD. I listen to MY humble servants when they
+cry out to ME. I would go to any extreme to save MY humble
+servants. I will move heaven and earth for MY humble servants. Do
+you understand this, MY daughter? MY humble servants are
+devoted to ME. They understand that they cannot do anything
+without ME. They are always seeking ME in all ways like a child
+seeks its parent. This is MY humble servant. They have no self will.
+They trust only ME in their daily walk. They search ME for their
+answers. They trust ME wholeheartedly and I answer them. I give
+them MY Best because they seek ME above all others for answers.
+They are humble and glorious in MY Sight. They have a soft-spoken
+beauty about them. They are not like the world around them.
+They stand
